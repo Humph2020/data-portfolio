@@ -28,7 +28,7 @@ I specialize in:
 ## 📫 Contact Me
 - **Email:** Humpheryokechukwu@gmail.com  
 - **GitHub:** [github.com/Humph2020](https://github.com/Humph2020)  
-- **LinkedIn:** 
+- **LinkedIn:** [linkedin.com/in/humpheryezeh](https://www.linkedin.com/in/humpheryezeh)
 
 ---
 
